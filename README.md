@@ -1,1 +1,1 @@
-# bugragedikli.github.io
+# My GitHub Page
